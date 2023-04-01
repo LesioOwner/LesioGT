@@ -1,2 +1,4 @@
-# LesioCoOwner-7259
-Well First Realess of LesioUi I guess   Owner Of LesioUi : LesioCoOwner#7259
+Hello ! My name is LesioOwner and im the CEO of Lesio And the Second CEO is LesioCoOwner! Enjoy Our Service and Destroy Those Gtag Lobbys 
+
+
+<3
