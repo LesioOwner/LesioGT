@@ -1,4 +1,13 @@
-Hello ! My name is LesioOwner and im the CEO of Lesio And the Second CEO is LesioCoOwner! Enjoy Our Service and Destroy Those Gtag Lobbys 
+#LESIOUI
+
+Hello, Im the Co-Owner of Lesio I made the Mod itself! Here are some Features
 
 
-<3
+-Support
+-Premium Mods
+-Free
+-OP Features
+
+
+LesioCoOwner#7259
+LesioOwner#6799
